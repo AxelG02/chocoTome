@@ -1,4 +1,4 @@
-![alt logo](https://cdn.discordapp.com/attachments/710863830837886976/982211257362948106/unknown.png)
+![alt logo](https://cdn.discordapp.com/attachments/710863830837886976/982219548038168576/unknown.png)
 
 # chocoTome site
 
